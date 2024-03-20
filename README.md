@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @nedmwanza
-- 👀 I’m interested in ..
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning ICT
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nedmwanza@gmail.com
 - 😄 Pronouns: he /him
 - ⚡ Fun fact: drawing
